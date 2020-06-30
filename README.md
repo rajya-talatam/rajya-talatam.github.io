@@ -1,2 +1,2 @@
-# rajya-talatam.github.io
-sai lakshmi pan shop
+# rajya-talatam.github.com
+
